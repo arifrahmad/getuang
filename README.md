@@ -1,0 +1,2 @@
+# getuang
+sangat menguntungkan
